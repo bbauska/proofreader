@@ -9,3 +9,4 @@ Proofreader: How to become a paid proofreader. As an old man with a BS in Comput
 
 <p><a href="https://proofreadanywhere.com/how-to-become-a-proofreader/">How to become a proofreader</a>.</p>
 
+<p>Ever wonder how <a href="https://proofreadanywhere.com/make-money-proofreading-online/">Rae makes money proofreading</a>.</p>
