@@ -4,3 +4,5 @@ Proofreader: How to become a paid proofreader. As an old man with a BS in Comput
 <p><a href="https://proofreadanywhere.com//making-personal-connections-secret-to-success/">Making genuine connections</a>.</p>
 
 <p><a href="https://proofreadanywhere.com/4-keys-to-growing-your-proofreading-business/">Grow your freelance business</a>.</p>
+
+<p><a href="https://proofreadanywhere.com/make-extra-money-online-free-guide-to-setting-up-your-freelance-website/">Building a proofreader website</a>.</p>
